@@ -1,2 +1,2 @@
-Corael - https://github.com/malemajo/team-exercise/pull/7
+Corael Thompson - https://github.com/malemajo/team-exercise/pull/7
 
